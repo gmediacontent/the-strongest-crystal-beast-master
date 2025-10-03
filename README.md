@@ -1,1 +1,2 @@
-# the-strongest-crystal-beast-master
+# The Strongest Crystal Beast Master
+Le jeune Chen Xing s’est lié d’amitié avec Lily, la « Reine du Destin » du Royaume des Bêtes de Cristal, devenant ainsi le premier éveillé à contracter avec une Bête de Cristal humanoïde. Il a acquis la capacité spéciale de transformer les Bêtes de Cristal en magnifiques jeunes filles et s’est lancé dans un voyage de combat et de pouvoir pour devenir le « Maître des Bêtes de Cristal le plus Puissant ». Jaloux ? J’ai d’innombrables Bêtes de Cristal humanoïdes comme elle !
